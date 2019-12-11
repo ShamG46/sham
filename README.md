@@ -1,0 +1,2 @@
+# sham
+Beginner, interested, positive
